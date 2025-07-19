@@ -1,1 +1,0 @@
-# BasrieTik.github.io
